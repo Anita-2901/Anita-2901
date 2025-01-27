@@ -7,4 +7,4 @@
 * 🚴🏽‍♀ I thrive on solving challenges and aspire to bring innovation and efficiency to every project
 - 📫 Let's connect on [LinkedIn](https://www.linkedin.com/in/anita-oluwayemi)
 - 📧 Write me an [email](anita.oluwayemi@gmail.com)
-- ⚡ I love Baking
+- ⚡ Fun Fact-I love Baking
