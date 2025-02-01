@@ -5,6 +5,6 @@
 - 💞️ I’m looking to collaborate with like minded professionals
 * 💪🏽 Currently honing my expertise in Excel, SQL, Power BI, Tableau, and Python
 * 🚴🏽‍♀ I thrive on solving challenges and aspire to bring innovation and efficiency to every project
-- 📫 Let's connect on [LinkedIn](https://www.linkedin.com/in/anita-oluwayemi)
+- 📫 Let's connect on [LinkedIn](https://www.linkedin.com/in/anita-oluwayemi-33135857/?utm_source=share)
 - 📧 Write me an [email](anita.oluwayemi@gmail.com)
 - ⚡ Fun Fact-I love Baking
